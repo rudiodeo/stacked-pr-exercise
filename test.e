@@ -1,0 +1,10 @@
+say
+headstrong
+unprimed
+dwindled
+shudders
+concretes
+briar's
+rev
+nave
+autocrat's
