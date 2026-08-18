@@ -1,3 +1,13 @@
+foyer
+innuendo
+roves
+delete
+boomtown
+prayer's
+knoll
+iced
+bubba69
+tennessee
 ranker
 statically
 graduate
