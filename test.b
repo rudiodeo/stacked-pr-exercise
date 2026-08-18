@@ -1,5 +1,10 @@
 peers
-skull
-thermometry
 facaded
 arnold
+septum
+blasted
+nucleolus
+lisping
+bagatelle's
+oversight's
+mailable
