@@ -3,3 +3,8 @@ midscale
 christy
 extractor
 rebellion's
+woods
+twill
+stingray
+liberated
+metallic
