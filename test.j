@@ -1,10 +1,10 @@
 heightens
 replace
 gifford
-hesitatingly
 mucking
 cuckoos
-d
 expenditures
 avuncular
 banishing
+singular
+declaratively
