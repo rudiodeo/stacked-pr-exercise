@@ -3,3 +3,8 @@ skull
 thermometry
 facaded
 arnold
+crushable
+family
+anywhere
+big
+warms

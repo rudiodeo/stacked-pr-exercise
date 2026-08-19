@@ -1,10 +1,10 @@
 topic's
 sapsucker
-antiresonator
 seated
 posable
-stinking
 commonest
 diligent
 rarity
-microprocessor's
+equipping
+gardener
+agates
