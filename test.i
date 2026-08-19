@@ -1,0 +1,10 @@
+boise
+collecting
+grumbling
+intimater
+intangibles
+poorly
+redskin
+accumulation
+concretion
+aquifer
