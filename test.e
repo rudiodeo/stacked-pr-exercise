@@ -1,10 +1,10 @@
 topic's
 sapsucker
 antiresonator
+seated
 posable
+stinking
+commonest
 diligent
+rarity
 microprocessor's
-laser's
-scribbled
-ratman
-parallelism
